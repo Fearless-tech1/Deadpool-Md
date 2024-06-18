@@ -18,9 +18,7 @@
 
 ## 🔆🔆MADE BY ℂ𝕠𝕟𝕗𝕣𝕠𝕟𝕥𝕖𝕣❌𝕂𝕒𝕤̌𝕙𝕜𝕚𝕕
 
-# 💀```Must fork the repository✝️```
-
-- FORK THE REPOSITORY [Here](https://github.com/Confronter/Deadpool-Md/fork)
+# 💀```Must fork the repositor
 
 ## 💀 `Pair Code For Session`
 
